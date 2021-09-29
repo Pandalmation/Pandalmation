@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pandalmation
+- 👀 I’m interested in drawing, gaming, animals and cute things
+- 🌱 I’m currently learning how to make friends lol
+- 💞️ I’m looking to collaborate on "uh idk'
+- 📫 How to reach me ...
