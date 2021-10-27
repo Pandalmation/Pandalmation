@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Pandalmation
-- 👀 I’m interested in drawing, gaming, animals and cute things
-- 🌱 I’m currently learning how to make friends lol
-- 💞️ I’m looking to collaborate on "uh idk'
-- 📫 How to reach me ...
+- 👋 Hi, I’m Pandalmation
+- 👀 I’m interested in drawing, gaming, nihongo and pets
+- 🌱 I have an IQ of 132, but ngl i feel like they forgot to put a negative sign infront.
+- 💞️ I’m cute yes.
+- don't take any of this srsly lmao
+
