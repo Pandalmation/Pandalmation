@@ -1,6 +1,4 @@
 - 👋 Hi, I’m Pandalmation
-- 👀 I’m interested in making other players salty in gacha games, due to my insane luck as a F2P
-- 🌱 I have an IQ of 132, but ngl i feel like they forgot to put a negative sign infront.
-- 💞️ I’m cute yes.
-- don't take any of this srsly lmao
-
+- 👀 I play a variety of games (except battle royale), draw manga styled characters and play the piano sometimes. 
+- 🌱 Currently a first year confused compsci student lol
+- 💞️ I like aglio olio and fettucine carbonara.
